@@ -11,4 +11,3 @@ Hey, Contact me via my main networks, in which I am usually very active, and of 
 ## 🌿 **Redirects:**
 [<img src="./assets/DLogo.png" alt="DISCORD-LOGO" height="45" wight="45" />](https://discord.com/)
 [<img src="./assets/JavaScript.jpg" alt="JS-LOGO" height="45" wight="45" />](https://www.javascript.com/)
-
