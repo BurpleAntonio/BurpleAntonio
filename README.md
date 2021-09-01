@@ -1,4 +1,4 @@
-### Bip..Boup! I'm Antonio and I own the [Taiki Café](https://discord.gg/taiki) ☕️
+### Bip..Boup! I'm Antonio and I own the [Burple's Lounge](https://discord.gg/VztH2WZwVR) ☕️
 
 ## 🌱 **Bio.**
 Hewwo! I'm Antonio aka Burple, i'm a young 17yo Coffe-lover & Interior Design student. I'm a Spanish/French native speaker and a casual english speaker.
@@ -6,7 +6,7 @@ Hewwo! I'm Antonio aka Burple, i'm a young 17yo Coffe-lover & Interior Design st
 
 ## 🌻 **Contact Me :**
 Hey, Contact me via my main networks, in which I am usually very active, and of course .. mainly Discord.Here I collect the redirects to my contact networks:
-> [Discord](https://discord.gg/taiki) /  [Reddit](https://www.reddit.com/user/BurpleMocha/)
+> [Discord](https://discord.gg/VztH2WZwVR) /  [Reddit](https://www.reddit.com/user/BurpleMocha/)
 
 ## 🌿 **Redirects:**
 [<img src="./assets/DLogo.png" alt="DISCORD-LOGO" height="45" wight="45" />](https://discord.com/)
